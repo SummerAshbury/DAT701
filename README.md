@@ -15,27 +15,22 @@ One such researcher is Oudshoorn,15 who argues that “because human work is del
 
 
 36
-Internet Matters (no date) Parental Controls Guide Available at:
-https://www.internetmatters.org/wp-content/uploads/parent-controls-docs/parental-control-sp
-acetalk-kids-watch.pdf 
+
 TCL MOVETIME (2017) Discover. Available at:
 http://www.tclcom.com/wearables/familywatch/discover.html 
 SPACETALK () SPACETALK Pty Ltd/SPACETALKWATCH UK Ltd Privacy Policy. Available
 at:
-https://cdn.shopify.com/s/files/1/0140/1503/7494/files/SPACETALKWATCH_UK_Privacy_Po
-licy_12.09.2019.pdf?3837 
+
 FOSSIL (2020) Terms and Conditions of Sale. Available at:
 https://support.fossil.com/hc/en-gb/articles/360026198311 
 Samsung (2020) Home. Available at: https://www.samsung.com/uk/ 
 2020)
-Vodafone (2020) V-Kids Watch. Available at: https://eshop.v.vodafone.com/uk/v-kids-watch
+
 
 Fitbit () Fitbit Ace 2. Available at: https://www.fitbit.com/uk/ace2 
 Jiobit (2019) Home. Available at: https://www.jiobit.com/ 
-Leapfrog (2020) Leapband. Available at:
-https://store.leapfrog.com/en-us/store/p/leapband/_/A-prod19263 
-House of Lords (2017) Growing up with the Internet. Available at:
-https://publications.parliament.uk/pa/ld201617/ldselect/ldcomuni/130/130.pdf 
+
+
 Bynum Ward, T. and Rogerson, S. (2004) Computer Ethics and Professional Responsibility.
 Malden: Blackwell Publishing.
 Floridi, L. (2014) The Fourth Revolution: How the Infosphere is Reshaping Human Reality.
